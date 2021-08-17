@@ -1,0 +1,3 @@
+- 👋 Bonjour, je suis @france-champetre.
+- 👀 Je suis intéressé dans tout ce qui touche la cinématographie.
+- 🌱 Je suis entrain d'apprendre l'art du court-métrage.
